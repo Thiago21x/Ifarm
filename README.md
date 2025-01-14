@@ -1,0 +1,1 @@
+O iFarm é uma plataforma que conecta produtores rurais a consumidores, simplificando a venda de produtos frescos diretamente das fazendas. Nossa missão é promover a agricultura local, oferecendo qualidade e sustentabilidade em cada compra
